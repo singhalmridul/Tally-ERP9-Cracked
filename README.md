@@ -118,6 +118,4 @@ Steo 24 --> Open your Tally ERP9 from Desktop or Applications Menu, you will be 
 
 Hoorah!! Tally ERP9 is succesfully cracked and is ready to use.
 
-Watch the Video for the detailed explanation
-
-https://youtu.be/_rzRxhaAZD8
+Watch the Video for the detailed explanation --> https://youtu.be/_rzRxhaAZD8
