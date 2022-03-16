@@ -3,6 +3,8 @@ All features of the paid version of Tally ERP9 are available here.
 
 Steps to safely download and install cracked version of Tally ERP9 safely on your (Windows 7/8/10/11).
 
+**For Visual Explanation there is a YouTube Video Link attched at the end of the file.
+
 Step 1 --> Click on Code and then click on Download ZIP. (as shown in the image below).
 
 ![image](https://user-images.githubusercontent.com/79533228/158681086-d9034b5a-11bd-4ff0-ac50-e2c32641a5c5.png)
@@ -115,3 +117,7 @@ Steo 24 --> Open your Tally ERP9 from Desktop or Applications Menu, you will be 
 ![image](https://user-images.githubusercontent.com/79533228/158689251-b774c193-f4b6-4d75-8c89-21c0937c9a66.png)
 
 Hoorah!! Tally ERP9 is succesfully cracked and is ready to use.
+
+Watch the Video for the detailed explanation
+
+https://youtu.be/_rzRxhaAZD8
